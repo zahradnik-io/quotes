@@ -47,6 +47,7 @@ Here I list quotes which I find inspiring. All these quotes were used either in 
 | Zažívame epizódu zo seriálu Black Mirror priamo pred našimi očami. | Vladimír Záhradník | Slovak | |
 | Tak trochu konflikt záujmov, všakže. Ja, štát, nechcem byť žalovateľný o náhradu škody a preto ja, štát, si schválim zákon. | Vladimír Záhradník | Slovak | |
 | Citát dňa: "U 99-percent ľudí sa nudíte pri ich počúvaní" Asi je čas dostať sa medzi horné jedno percento 🙂 | Vladimír Záhradník | Slovak | |
+| Quote of the Day: "99 percent of humanity is boring to listen to" Time to move on to be the top 1 percent😀 | Vladimír Záhradník | English | |
 | Revolúcia požiera svoje vlastné deti. | Unknown | Slovak | |
 | Žiaľ, v dnešnej dobe nie je odbornosť na prvom mieste. | Vladimír Záhradník | Slovak | |
 | Lebo ak strpíte, aby váš ľud bol zle vzdelávaný a aby jeho správanie bolo skazené od útleho detstva, a potom ho potrescete za jeho zločiny, ku ktorým ho ich prvotné vzdelanie viedlo, z toho treba vyvodiť iba to, že vy najskôr robíte zlodejov a potom ich trestáte. | Sv. Tomáš Morus | Slovak | |
