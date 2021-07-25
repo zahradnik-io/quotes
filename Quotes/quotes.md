@@ -33,3 +33,23 @@ Here I list quotes which I find inspiring. All these quotes were used either in 
 | Každý v tejto krajine by sa mal naučiť programovať počítač, lebo sa tým naučíte, ako myslieť. | Steve Jobs | Slovak | |
 | Everybody in this country should learn to program a computer because it teaches you how to think. | Steve Jobs | English | |
 | Politikům se nevěří, politikové se kontrolují. Věří se v boha, věří se v přírodu, věří se v krásu, věří se v myšlenku, ideu. V politika se nevěří, a kdo v něj věří, je idiot! | Karel Kryl | Czech | |
+| V tomto svete nie je nič isté, iba smrť a dane. | Unknown | Slovak | https://youtu.be/KcktbuVgHvw |
+| Brat sa pýta, čo je to ten kudos. Vraj mu ho dala šéfka... Mám pocit, že tu zúri ešte jedna epidémia, korporátnych pochvál 🤣 | Vladimír Záhradník | Slovak | |
+| No matter the circumstance, it is always important to keep your tie on straight. | Gustavo Fring, Breaking Bad | English | |
+| Xindl X vie veci pomenovať bez toho, aby ich pomenoval. Geniálne! | Vladimír Záhradník | Slovak | |
+| Do the work! | Richard Cooper, Entrepreneurs in Cars | English | https://www.youtube.com/user/EntrepreneursInCars |
+| And Boom Goes the Dynamite | TV Anchor | English | https://www.youtube.com/watch?v=W45DRy7M1no |
+| Česko a Slovensko akoby od seba kopírovali tie najhoršie nápady... | Vladimír Záhradník | Slovak | https://www.idnes.cz/zpravy/domaci/babis-chce-dal-uredni-maturitu-jde-podle-nej-o-dusevni-zdravi-studentu.A210328_143655_domaci_lre |
+| Fight for knowledge. Question everything. | Robert Kiyosaki | English | |
+| Ja zase zvyknem počúvať: "Rob, čo ťa baví a čo ti dáva zmysel. Peniaze prídu neskôr samy." Asi na tom niečo bude. | Vladimír Záhradník | Slovak | |
+| My poor dad thought money was the goal. My rich dad said achieving your dream is the goal. | Robert Kiyosaki | English | |
+| Nič nie je tak večné ako dočasný núdzový stav. | Menej štátu | Slovak | |
+| Zažívame epizódu zo seriálu Black Mirror priamo pred našimi očami. | Vladimír Záhradník | Slovak | |
+| Tak trochu konflikt záujmov, všakže. Ja, štát, nechcem byť žalovateľný o náhradu škody a preto ja, štát, si schválim zákon. | Vladimír Záhradník | Slovak | |
+| Citát dňa: "U 99-percent ľudí sa nudíte pri ich počúvaní" Asi je čas dostať sa medzi horné jedno percento 🙂 | Vladimír Záhradník | Slovak | |
+| Revolúcia požiera svoje vlastné deti. | Unknown | Slovak | |
+| Žiaľ, v dnešnej dobe nie je odbornosť na prvom mieste. | Vladimír Záhradník | Slovak | |
+| Lebo ak strpíte, aby váš ľud bol zle vzdelávaný a aby jeho správanie bolo skazené od útleho detstva, a potom ho potrescete za jeho zločiny, ku ktorým ho ich prvotné vzdelanie viedlo, z toho treba vyvodiť iba to, že vy najskôr robíte zlodejov a potom ich trestáte. | Sv. Tomáš Morus | Slovak | |
+| O tej dotieravej sove z Duolingo som už počul rôzne historky 😃 | Vladimír Záhradník | Slovak | |
+| Dobrá kniha, ktorá núti premýšľať, naštartuje kreativitu. | Vladimír Záhradník | Slovak | |
+| Given their radical authenticity and decisiveness, Architects are known to be painfully honest. | 16Personalities | English | |
