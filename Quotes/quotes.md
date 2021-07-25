@@ -53,3 +53,4 @@ Here I list quotes which I find inspiring. All these quotes were used either in 
 | O tej dotieravej sove z Duolingo som už počul rôzne historky 😃 | Vladimír Záhradník | Slovak | |
 | Dobrá kniha, ktorá núti premýšľať, naštartuje kreativitu. | Vladimír Záhradník | Slovak | |
 | Given their radical authenticity and decisiveness, Architects are known to be painfully honest. | 16Personalities | English | |
+| The journey of a thousand miles begins with one step. | Unknown | English | |
