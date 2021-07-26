@@ -55,3 +55,7 @@ Here I list quotes which I find inspiring. All these quotes were used either in 
 | Dobrá kniha, ktorá núti premýšľať, naštartuje kreativitu. | Vladimír Záhradník | Slovak | |
 | Given their radical authenticity and decisiveness, Architects are known to be painfully honest. | 16Personalities | English | |
 | The journey of a thousand miles begins with one step. | Unknown | English | |
+| Na tomto svete nie je nič isté, iba smrť a dane. | Zoznámte sa, Joe Black | Slovak | https://www.youtube.com/watch?v=KcktbuVgHvw |
+| In this world nothing is certain but death and taxes. | Meet Joe Black | English | https://www.youtube.com/watch?v=KcktbuVgHvw |
+| Márnosť nad márnosti, všetko je márnosť / Márnosť nad márnosť, všetko je pominuteľné. | Biblia | Slovak | |
+| Rozdeľuj a panuj. | N/A | Slovak | Divide et impera |
