@@ -61,3 +61,4 @@ Here I list quotes which I find inspiring. All these quotes were used either in 
 | Rozdeľuj a panuj. | N/A | Slovak | Divide et impera |
 | Márnosť nad márnosti, všetko je márnosť / Márnosť nad márnosť, všetko je pominuteľné. | Biblia | Slovak | |
 | V práci zamieňate váš čas výmenou za mzdu a času nemáte nekonečne veľa. Vždy, keď pracujem, premýšľam takto: "Koľko času si takto kúpim? Nemusím pracovať rok? Dva roky?" | Vladimír Záhradník | Slovak | |
+| Survive, adapt, win | ARMA / Michal "Havran" Loučičan | English | |
