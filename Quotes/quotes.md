@@ -62,3 +62,5 @@ Here I list quotes which I find inspiring. All these quotes were used either in 
 | Márnosť nad márnosti, všetko je márnosť / Márnosť nad márnosť, všetko je pominuteľné. | Biblia | Slovak | |
 | V práci zamieňate váš čas výmenou za mzdu a času nemáte nekonečne veľa. Vždy, keď pracujem, premýšľam takto: "Koľko času si takto kúpim? Nemusím pracovať rok? Dva roky?" | Vladimír Záhradník | Slovak | |
 | Survive, adapt, win | ARMA / Michal "Havran" Loučičan | English | |
+| It's better to see something once than to hear about it a thousand times. | Proverb | English | |
+| Je lepšie raz vidieť ako stokrát počuť. | Príslovie | Slovak | |
