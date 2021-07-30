@@ -64,3 +64,4 @@ Here I list quotes which I find inspiring. All these quotes were used either in 
 | Survive, adapt, win | ARMA / Michal "Havran" Loučičan | English | |
 | It's better to see something once than to hear about it a thousand times. | Proverb | English | |
 | Je lepšie raz vidieť ako stokrát počuť. | Príslovie | Slovak | |
+| Embrace your bachelor life | Vladimír Záhradník | English | Užívaj si to, čo máš teraz, lebo pri žene už to nebude možné (tak často). |
